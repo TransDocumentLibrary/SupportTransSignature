@@ -8,6 +8,7 @@
 
 - [神楽坂小涵🍥Xiaohan](https://github.com/yuhan2680)
 - [雾岛岚🏳️‍⚧️🏳️‍🌈](https://github.com/Kirishim-arashi)
+- [苏阳🍥Nya_Twisuki](https://github.com/Twisuki)
 
 ## 项目贡献者
 
